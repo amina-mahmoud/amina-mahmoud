@@ -1,0 +1,1 @@
+- Directrice E-marketing et Communication. Je suis très passionné par les nouvelles technologies, où je m'ouvre chaque jour à la création de services web dédiés à la conquête B2B ainsi qu'au développement de la notoriété de la marque.
