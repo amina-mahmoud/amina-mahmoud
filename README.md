@@ -1,1 +1,1 @@
-- Directrice E-marketing et Communication. Je suis très passionné par les nouvelles technologies, où je m'ouvre chaque jour à la création de services web dédiés à la conquête B2B ainsi qu'au développement de la notoriété de la marque.
+E-marketing and Communications Director. I am deeply passionate about new technologies, and I dedicate myself daily to creating web services for B2B customer acquisition and building brand awareness.
